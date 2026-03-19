@@ -1,6 +1,4 @@
-## Hi there 👋
-
-## 💫 About Me:
+## About Me:
 🧬 Forensic geneticist with a strong focus on microhaplotypes.<br>
 🌍 Passionate about population genetics, ancestry research, and what our DNA can tell us about human history.<br>
 🌲 Interested in genetic genealogy and digging into historical records.<br>
